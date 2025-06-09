@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @rahulchavancr7  
+- 👀 I’m interested in travel, biking, and creating cinematic content  
+- 🌱 I’m currently learning more about video editing and content creation  
+- 💞️ I’m looking to collaborate on travel and tech projects, especially those involving creative media  
+- 📫 How to reach me:  
+   - Instagram: [@rahulchavancr7](https://www.instagram.com/rahulchavancr7/)  
+   - YouTube: [CRAXY 200_4V Rider](https://www.youtube.com/@RahulChavan-qx1rg)  
+- 😄 Pronouns: he/him  
+- ⚡ Fun fact: I’ve been biking since 2020 and love capturing Maharashtra’s beauty through my iPhone 11 lens!
